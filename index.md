@@ -1,3 +1,3 @@
-# Welcome to my blog
+# BonkersBricks
 
-I'm glad you are here. I plan to talk about ...
+Check out my stores on Rebrickable and Belle-Ve Bricks!
